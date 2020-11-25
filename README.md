@@ -1,10 +1,10 @@
 # Backyard Paddle Boat
 
-## Authors
-OpeOluwa (Ayo) Otegbade
-Timothy Bean
-Alexander King
-Julius Page
+## Authors/Designers
+* OpeOluwa (Ayo) Otegbade
+* Timothy Bean
+* Alexander King
+* Julius Page
 
 ## Description
 The paddleboat was designed for leisure. It comes equipped with cutouts for coolers or supplies in the pontoons at arm’s length for a warm summer day. If the day is particularly bright, the gazebo design of the canopy provides much more shade than a fabric sun cover. The chairs were designed to mimic the look of a backyard lawn chair, so the user can feel at home when you are in the middle of the water. The paddleboat was not made for speed, but rather for a relaxing day out on the lake. Extra deck space offers cargo room and the ease of taking a quick jump into the water. The rubberized pedals were designed so that it can be equally as comfortable and grip-able with or without shoes on.
